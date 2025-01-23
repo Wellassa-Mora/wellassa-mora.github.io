@@ -26,5 +26,3 @@ Motivational speeches and video presentations on topics like island best perform
 **A Day to Remember:**
 
 The Wellassa Mora Seminar Series - 2025 was a successful event that provided students with a valuable learning experience. It was a day of knowledge, inspiration, and celebration, leaving a lasting impact on all who attended. 
-
-**Would you like to know more about any specific aspect of the event, like the EXMO project or the 'Mora spirit'?**
